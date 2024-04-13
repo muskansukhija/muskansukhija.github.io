@@ -3,7 +3,7 @@
 2+ years H.R experience working across APAC and EMEA Region
 
 #### Technical Skills- Advanced Excel, Microsoft Office, Power BI, Google Suite, SQL, Jira, ChatGPT 3.5
-#### Proficient at Tools- Workday, BambooHR, HireRight, Credence, Zhoosh, ADP, Recruitee, Know4Be, SuccessFactors
+#### Proficient at Tools- BambooHR, HireRight, Credence, Zhoosh, ADP, Recruitee, Know4Be, SuccessFactors
 
 
 ### Work Experience
