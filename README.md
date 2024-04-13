@@ -39,6 +39,9 @@
 
 
 ### Education
-University Of Delhi, Bachelor of Commerce, 2020
-Bhartiyam International School ,Class XII, 2017
-Columbus Public School , Class X, 2015
+• University Of Delhi, Bachelor of Commerce, 2020
+• Bhartiyam International School ,Class XII, 2017
+• Columbus Public School , Class X, 2015
+
+
+
